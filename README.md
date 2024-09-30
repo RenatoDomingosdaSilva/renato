@@ -12,4 +12,7 @@ alurastartestudante@email.com
 
 @renato
 
-![manchester-united-cristiano-ronaldo](https://github.com/user-attachments/assets/d7ba7d26-5b05-416c-a988-a6a40cc92c69)
+![regele-fotbalului-regele](https://github.com/user-attachments/assets/5650a5f6-aa8f-4b9e-8ebd-605ed3763d2d)
+
+
+
