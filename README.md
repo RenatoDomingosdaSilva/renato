@@ -12,7 +12,7 @@ alurastartestudante@email.com
 
 @renato
 
-![regele-fotbalului-regele](https://github.com/user-attachments/assets/5650a5f6-aa8f-4b9e-8ebd-605ed3763d2d)
 
+![messi](https://github.com/user-attachments/assets/311fdddb-aa20-49f6-9e64-5ff87f25a5eb)
 
 
